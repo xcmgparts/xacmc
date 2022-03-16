@@ -1,4 +1,4 @@
-# xacmc
+# xacmc (email: linda@xacmc.com)
 supply xcmg spare parts from China
 Product list:
 
